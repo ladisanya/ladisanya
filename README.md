@@ -1,5 +1,5 @@
 ### Hi, I'm Ladi
-🌍 I live in Ontario, Canada
+🌍 I live in Ontario, Canadabr/>
 🎯 I'm an experienced Product Manager, my resume is available <a href="https://docs.google.com/document/d/1b3WOJbtXdZY6yNrUpruX7J36gKhqgiRi9OjnT56sX5I/edit?usp=sharing" target="_blank">here</a><br/>
 📊 Worked in the insurance, healthcare, settlement spaces<br/>
 💡 Currently, I lead the product team at <a href="https://www.peacegeeks.org/our-team" target="_blank">PeaceGeeks</a><br/>
